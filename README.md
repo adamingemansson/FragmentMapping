@@ -1,1 +1,0 @@
-# Fragment Mapping Hansson Data
